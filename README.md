@@ -1,6 +1,6 @@
 # Jane's video production portfolio '25
 
-bio
+I love music, I can play ukulele, piano, guitar, and bass. I really like twenty one pilots and Foster The People.
 
 ## Projects for Term 3
 
