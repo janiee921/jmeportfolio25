@@ -3,7 +3,7 @@
 I love music, I can play ukulele, piano, guitar, and bass. I really like twenty one pilots and Foster The People.
 
 ## Projects for Term 3
-[Broadcast Intro](https://drive.google.com/drive/home)
+[Broadcast Intro](https://drive.google.com/file/d/1vh8IkchN3x-IS-ut_Tp9myK50mUWq-kw/view?usp=sharing)
 
 [Framing and Camera Support slides](https://docs.google.com/presentation/d/1hSctHfIKUZ481wt1b0eCRjgHBNE50mVnSSczwsRAOZg/edit#slide=id.g32b26dc4ee8_11_4)
 
