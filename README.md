@@ -11,6 +11,8 @@ I love music, I can play ukulele, piano, guitar, and bass. I really like twenty 
 
 [WoAW Segment Proposal](https://drive.google.com/file/d/1KIwsHzrS6mwsrw2Vr0rJuLAwzezE649O/view?usp=sharing)
 
+[J and L Cut Presentation](https://docs.google.com/presentation/d/1zLW4qHgJiuAmpMmhhDhcaflZHw-ON4s_Lvx-n-9IU-4/edit?slide=id.g341879b1f44_0_0#slide=id.g341879b1f44_0_0)
+
 ### Project Map for Skyline Daily Video Announcements
 
 ## Projects for Term 4
